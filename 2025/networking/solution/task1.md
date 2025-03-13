@@ -1,0 +1,1 @@
+This is my submissions for week 1 challange
